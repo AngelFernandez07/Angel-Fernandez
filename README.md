@@ -12,7 +12,7 @@ Di cómo será ese paso
 
 Algunas webs permitidas para realizar la acción:
 
-https://digitalnewstimes.com https://dailyindustrialnews.com https://newdigitalsun.com https://saydallas.com https://agreeopinion.com https://phoenixofdetroit.com https://connectionnewyork.com https://betterpeoplebusiness.com 
+https://digitalnewstimes.com https://dailyindustrialnews.com https://newdigitalsun.com https://saydallas.com https://agreeopinion.com https://phoenixofdetroit.com https://connectionnewyork.com https://betterpeoplebusiness.com https://digitalreporterusa.com https://locallosangelesnews.com https://oklahomafrontier.com 
 
 
 
